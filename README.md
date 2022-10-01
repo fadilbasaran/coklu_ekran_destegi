@@ -1,0 +1,1 @@
+# coklu_ekran_destgi
